@@ -1,2 +1,2 @@
 __Hello potatos__
-:mask:
+:potato::onigiri:
