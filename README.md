@@ -1,2 +1,3 @@
 __Hello potatos__
-:potato::onigiri:
+:potato:
+
