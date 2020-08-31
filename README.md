@@ -15,4 +15,7 @@ yey
 if u read dis pls give ideas. im basically brain ded
 yey
 
+i aint even brain ded. There aint cells there #nobraincells 
+
 *je suis un fromage 🧀* 
+
