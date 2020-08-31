@@ -14,3 +14,5 @@ yey
 
 if u read dis pls give ideas. im basically brain ded
 yey
+
+*je suis un fromage 🧀* （edit mage by claire)
