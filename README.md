@@ -1,4 +1,4 @@
-__Hello onigiripoatos__
+__Hello onigiripotatos__
 :potato:
 :cheese:
 
