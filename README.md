@@ -4,7 +4,6 @@ __Hello potatos__
 As you can see, I have absolutely no ideas
 :(
 :O
-
+(idea used by haining :D)
 which is sad
 
-but we have potatoes! :D
