@@ -1,0 +1,7 @@
+#this should scroll 'imma potato' across de microbit
+#got error tho
+#pls help fix thxx
+#also im bored 
+
+name = input("What is your name?")
+print  ("imma potato")
