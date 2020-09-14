@@ -1,8 +1,9 @@
 __Hello onigiripotatos__
 :potato:
 :cheese:
+🍙
 
-unfortunately i can't put the onigiri emoji there :(
+:O I found the onigiri emoji yey :)
 
 As you can see, I have absolutely no ideas
 :(
@@ -15,7 +16,7 @@ yey
 if u read dis pls give ideas. im basically brain ded
 yey
 
-i aint even brain ded. There aint cells there #nobraincells 
+i aint even brain ded. There aint cells there #nobraincells. Courtesy of jocelyn :(
 
 *je suis un fromage 🧀* 
 
