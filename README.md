@@ -18,5 +18,15 @@ yey
 
 i aint even brain ded. There aint cells there #nobraincells. Courtesy of jocelyn :(
 
-*je suis un fromage 🧀* 
+*je suis un fromage 🧀*
+
+.
+
+.
+
+.
+
+I just realised that theres a lot of yeys
+
+so yey
 
